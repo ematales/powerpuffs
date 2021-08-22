@@ -1,2 +1,0 @@
-# powerpuffs
-your mom
